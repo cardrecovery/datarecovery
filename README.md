@@ -1,6 +1,4 @@
-
-<a href="http://www.lionsea.com/download/cardrecoverypro/Android_Data_Recovery_Pro_Setup.exe"target="_blank"><img src="http://www.smartpcfixer.com/images/list_img07.jpg
-" /></a><br /><br />
+<a href="http://www.lionsea.com/download/cardrecoverypro/Android_Data_Recovery_Pro_Setup.exe"target="_blank"><img src="http://c.lionsea.net//halenjane/image/download_03.png" /></a><br /><br />
 “Oh my goodness, my photos are lost again!” We have been there sometimes. And those situations are like rain or snow that may suddenly occur in our daily life, which can be caused by multiple reasons, such as virus infection, unintentional deletion or formation, sudden power failure during transfer, etc. The first method we think of is to check whether they are still stored in recycle bin. If so, you are very lucky to recover them quickly. If not, do not feel worry about that, just keep on reading the article.<br /><br />
 
 As a matter of fact, the content of deleted or formatted data and files is still stored in some place and it can be recovered as long as the storage device has not been overwritten. So the first thing we should do is to stop using the device when data loss has appeared. However, it is hard for us to find where the content of lost files exist. We should find help from professional <a href="http://www.scoop.it/t/data-recovery-by-datarecovery"target="_blank">card recovery</a> to help us find them and recover them.<br /><br />
