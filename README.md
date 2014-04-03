@@ -18,7 +18,7 @@ It proves that Android Data Recovery Pro is safe and risk-free.<br /><br />
 Raw Recovery Process<br />
 
 At the same time, the software supports more than 100 different file types. Recover lost or deleted files on the basis of their file signatures with the advanced Raw Recovery features included in the software.<br /><br />
-<a href="http://howtorecoverdata.weebly.com/"target="_blank">How to recover data</a>?<br /><br />
+<a href="https://exploreb2b.com/articles/how-to-recover-android-data-1"target="_blank">How to recover data</a>?<br /><br />
 Step 1, double-click the Android Data Recovery Pro and open it.<br /><br />
 Step 2, connect the device and select the destination folder.<br /><br />
 
